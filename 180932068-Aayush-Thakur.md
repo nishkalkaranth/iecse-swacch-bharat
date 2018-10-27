@@ -3,4 +3,5 @@ Swachh Bharat! A mission, a dream! For the first time in the history of independ
 1. Swachh Bharat (*Rural*)
 2. Swachh Bharat (*Urban*)
 ### What has it done so far?
-India has seen a construction of 86 million toilets since 2014 and the number of people defecating openly has reduced from **550 million** to a fewer than **1 million** as of 2018. Celebrities handpicked my the Prime Minister himself 
+India has seen a construction of 86 million toilets since 2014 and the number of people defecating openly has reduced from **550 million** to a fewer than **1 million** as of 2018. Celebrities handpicked by the Prime Minister himself, have been promoting this campaign to create more awareness amongst the general population. It also has provided employment to thousands of Indians and has shown amazing progress in the past years.
+### How can we be a part of Swachh Bharat
