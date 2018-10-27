@@ -25,4 +25,8 @@ Narenda|Modi|2021
 Narenda|Modi|2022
 Narenda|Modi|2023
 
+Because Narendra Modi said:
+>So far as the government is concerned, there is only one holy book, which is the constitution of India. My government will not tolerate or accept any discrimination based on caste, creed and religion.
+
+
 :heartbeat: *Ab ki baar Modi Sarkaar* :heartbeat:
