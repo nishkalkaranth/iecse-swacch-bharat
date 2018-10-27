@@ -28,3 +28,6 @@ surrounding areas. Such efforts can really go a long way in making sure that the
 - Providing right toilets and user interface.
 - Treating and disposing of waste in a scientific manner.
 - Using technological resources like GitHub to better improve and help the situation.
+
+For more information visit:
+http://swachhbharatmission.gov.in/sbmcms/index.htm
