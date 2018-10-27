@@ -19,4 +19,4 @@ __Bold__
 
 [GitHub](https://github.com)
 
-What the Fuck  :boom:
+:boom:
