@@ -2,7 +2,7 @@
 
 # **_Swachh Bharat Abhiyan_**
 
-As a responsible citizen of the country, this is my mini contribution to the Swachh Bharat Abhiyan initiated by our honourable PM, Narendra Modi.
+As a responsible citizen of the country, this is my mini contribution to the Swachh Bharat Abhiyan initiated by our honourable PM, Narendra Modi. Technological developments play in major role in driving the country towards cleanliness. GitHub is a community of developers to discover, share and build better software. It is a platform which which when used fruitly, helps in technogical advancements.
 
 The drive has been categorized in two sub-missions:
 1. Swatch Bharat Abhiyan (Urban) 
