@@ -26,3 +26,21 @@ It is in harmony with UN's 6th Sustainable Development Goal which aims at provid
 
 -25 open defecation free states
 
+It has roped in famous personalities like Kapil Sharma (comedian),
+Sourav Ganguly (cricketer),
+Kiran Bedi (Former IPS officer),
+Padmanabha Acharya (Nagaland Governor),
+Sonal Mansingh (classical dancer),
+Ramoji Rao (Eenadu group),
+Aroon Purie (India Today group),
+Akhilesh Yadav (Politician),
+Swami Rambhadracharya,
+Manoj Tiwari (Politician),
+Er.Dilkeshvar Kumar (Engineer),
+Mohammad Kaif (Player),
+Deviprasad Dwivedi,
+Raju Srivastava(comedian),
+Suresh Raina (Player) and various others in the recent years.
+
+Awareness of this mission is needed for the overall growth of India in every sector as every sector directly or indirectly relates with health.
+This initiative is only achievable if people participate and when the whole country develops a sense of cleanliness,we will see a much positive change in the times to come.
