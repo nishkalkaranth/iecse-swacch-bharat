@@ -12,6 +12,12 @@ It is in harmony with UN's 6th Sustainable Development Goal which aims at provid
 
 -establishing an accountable mechanism of monitoring toilet use
 
+**DIVISIONS**
+
+-Swachh Bharat Abhiyan ("gramin" or 'rural'), which operates under the Ministry of Drinking Water and Sanitation
+
+-Swachh Bharat Abhiyan ('urban'), which operates under the Ministry of Housing and Urban Affairs
+
 **ACHIEVEMENTS**
 
 -currently this campaign is covering 4041 statutory towns in order to clean roads, streets, and infrastructure of the India
