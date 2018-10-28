@@ -2,7 +2,8 @@
 
 #### The Swatchh Bharat Mission was started by the Narendra Modi government, that aimed to be the largest behaviour change campaign in the field of sanitation in the world
 
-There have been:
+What was started as a government programme, has soon turned into a nationwide movement, in which hundreds of NGOS, Schools, Colleges and private organisations have taken part.
+Under this programme there have been:
 - 8,51,80,706 household toilets built in Rural Areas
 - 50,71,725 household toilets built in Urban Areas
 - 395,200 public toilets built in Urban areas
