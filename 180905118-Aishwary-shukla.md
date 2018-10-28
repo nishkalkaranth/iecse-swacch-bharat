@@ -9,7 +9,7 @@ Some notable achievements in these 4 years are:
 3. __25__ open defecation free states/UTs
 4. __94.83%__ rural sanitation coverage & many more
 
-It is a politics free campaign and inspired by patriotism. It is launched as a responsibility of each Indian citizen to make this country a Swachh country. Under this campaign, another cleanliness initiative has been started by the UP CM, *Shri Yogi Adityanath* in March 2017. He has **banned** chewing paan, gutka and such tobacco products in all the government offices across UP. This abhiyan will be concluded as a tribute on **Mahatma Gandhi's 150th birthday anniversary**. It is challenge only possible if each and every person living in India understands this campaign as their own responsibility and try to join hands together to make it a successful mission.
+This kind of campaign was a need of the hour, as a clean country leads to healthy citizens. It is launched as a responsibility of each Indian citizen to make this country a Swachh country. Under this campaign, another cleanliness initiative has been started by the UP CM, *Shri Yogi Adityanath* in March 2017. He has **banned** chewing paan, gutka and such tobacco products in all the government offices across UP. This abhiyan will be concluded as a tribute on **Mahatma Gandhi's 150th birthday anniversary** i.e. 2nd october, 2019. It is a challenge only possible if each and every person living in India understands this campaign as their own responsibility and try to join hands together to make it a successful mission.
 
 > ### Mahatma Gandhi never compromised on cleanliness. He gave us freedom. We should give him a clean India. -*Narendra Modi*
 :smile:
