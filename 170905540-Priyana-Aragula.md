@@ -9,7 +9,7 @@ The mission was launched to solve these issues and work on the foundation of fin
 
 
 
-![Swachh Bharat]()
+![Swachh Bharat](swachh_bharat.png)
 
 >"So long as you do not take the broom and the bucket in your hands, 
 >you-cannot make your towns and cities clean." 
