@@ -10,4 +10,4 @@
 # We now have to complete about 100 contact hours on cleanliness for swachh bharat internship as per new rules of AICTE.Many clubs in MIT are trying and giving these hours by conducting various workshops,and this one mainly by IECSE is really awesome.
 
 # Concluding by a quote of **George Adams**
-# **>The cleanliness is essential to conducting nano-scale research**
+ > The cleanliness is essential to conducting nano-scale research
