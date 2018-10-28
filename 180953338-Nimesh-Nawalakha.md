@@ -8,7 +8,7 @@ The goverment is trying to accomplish this by building **90 million toilets** in
 And since that day India has surely become a cleaner and a more hygenic place to live in. And one of the main reason for the success of the campaign are 
 the citizen of India who actively took part in the aim that Narendra modi had set for the courntry and all of its citizen as a whole.
 A lot of big names also helped in promoting the campaign. These big names include the likes of 
-* **Sachin Tendulkar***
+* **Sachin Tendulkar**
 * **Priyanka Chopra**
 * **Vidya Balan** 
 
