@@ -8,3 +8,5 @@
 * To fulfill **SDG Goal 6 of UN**: Ensure availability and sustainable management of *water and sanitation for all.*
 * To emphasize on the fact that clean mind and body reside in clean environment.
 * To effectively and efficiently **handle waste generated.** People are encouraged to *separate wet and dry garbage for this.*
+
+##### These goals are intended to be met by 2019 in time for Mahatma Gandhi's 150th birth aniversary.
